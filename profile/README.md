@@ -2,7 +2,7 @@
 
 Play Retro Bowl Unblocked without limitations at all. Rush over today to get started. Do not wait at all. This is your opportunity to enjoy. Invite friends too. What are you waiting for?
 
-## [Click to Play Retro Bowl Unblocked](https://marllabas.com/retro-bowl-unblocked)
+## [Click to Play Retro Bowl Unblocked](https://naremo.com)
 
 Retro Bowl has taken the gaming world by storm, offering players a unique blend of old-school charm and modern gameplay. As a football management game with a retro aesthetic, it has captured the attention of casual and hardcore gamers alike. However, while the game is widely available on various platforms, many players are interested in playing Retro Bowl Unblocked versions of the game, especially during breaks at school or work. These unblocked versions provide easy access without the restrictions imposed by firewalls or content filters.
 
